@@ -1,4 +1,4 @@
-### Hello World !!! 👋
+### Hello World !!! 
 
 
 "If you're worrying on something that you really care about, You don't have to be pushed. The vision pulls you" - Steve Jobs
